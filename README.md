@@ -1,2 +1,2 @@
-# CV
-Informasi Tentang Sayang
+# Informasi Tentang Saya
+20220801302 - Muhammad Fikri
